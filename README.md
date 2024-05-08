@@ -1,5 +1,5 @@
 🐧  🎨  [🍎](http://147.45.73.203/)  🧙‍♂️<br><br>
-[telegram](https://t.me/nymver_bot)<br>
+[telegram](https://t.me/nymver)<br>
 [discord](https://discord.com/users/1178018412455268365)<br>
 [steam](https://steamcommunity.com/id/nymver/)<br>
 nymver@blah.im *//  jabber*<br><br>
