@@ -7,4 +7,4 @@ nymver@blah.im *//  jabber*<br><br>
 XMR:
 `445tCU9mVT2MRuBTaMHM1nKMmV4NoSfFobr5hLcUjg6qjHFBEq5t2pgeuzzN64ohfNREHTeE6QBxW4uuPR6wS3vHAHn3AhU`
 
-![rice](https://i.imgur.com/8ALMX77.png)
+![rice](https://i.imgur.com/gxIwZg7.png)
